@@ -32,4 +32,4 @@ Uncover the SMART business objectives steering Moser-Roth's World Cup-themed cho
 
 The Moser-Roth World Cup-themed Chocolate Campaign proposes an innovative fusion of delectable treats, cultural inclusivity, sustainability, and the universal appeal of sportsmanship. By embracing these elements, the campaign aims to position Moser-Roth not just as a chocolate brand but as a symbol of shared celebration, joy, and contemporary values.
 
-Thank you for joining us on this flavorful journey with the Moser-Roth World Cup-themed Chocolate Campaign!
+Thank you for joining me on this flavorful journey with the Moser-Roth World Cup-themed Chocolate Campaign!
