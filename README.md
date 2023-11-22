@@ -10,7 +10,7 @@ Embark on a delicious journey with us as we propose a groundbreaking World Cup-t
 
 Choosing a World Cup theme is more than a campaign choice; it's a celebration of cultural diversity and shared global joy. By infusing the excitement of the World Cup into our chocolate campaign, Moser-Roth aims to create an emotional connection with consumers while emphasizing contemporary environmental values through sustainable packaging materials.
 
-## Tasks Accomplished
+## Recommendations 
 
 ### Packaging Unification
 
